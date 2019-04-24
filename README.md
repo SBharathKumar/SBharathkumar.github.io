@@ -1,4 +1,4 @@
-# SBharathkumar.github.io
+SBharathkumar.github.io
 
 Hi,
 
